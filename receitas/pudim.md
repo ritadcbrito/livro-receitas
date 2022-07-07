@@ -41,3 +41,7 @@
 - Espete um garfo para ver se está bem assado.
 
 - Deixe esfriar e desenforme.
+
+
+
+Fonte [tudo gostoso](https://www.tudogostoso.com.br/receita/143393-bolo-de-milho-de-lata-no-liquidificador.html)
